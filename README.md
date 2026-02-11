@@ -1,6 +1,6 @@
 官方最新地址
 
-51头条 网页版最新网址 https://51tt22.com/
+51头条 网页版最新网址 https://51tt23.com/
 
 51头条 网页版永久地址（需要VPN）:https://www.51ttwang.com
 
